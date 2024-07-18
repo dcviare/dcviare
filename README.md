@@ -11,7 +11,8 @@
 </p>
 
 <p align="center">i don't really care what you call me//
-</br> nonverbal most of the time// please
+</br> nonverbal most of the time// very chatty around
+closefriends//, please
 </br> whisp if you wantto interact//
 
 <p align="center">if i have you added
